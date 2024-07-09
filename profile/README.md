@@ -1,1 +1,1 @@
-# Delta Saftware und Leitner
+# Delta Saftware und Jörg
